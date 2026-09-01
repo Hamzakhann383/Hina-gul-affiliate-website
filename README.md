@@ -1,1 +1,0 @@
-# Hina-gul-affiliate-website
